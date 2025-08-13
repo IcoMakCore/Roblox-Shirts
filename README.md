@@ -24,3 +24,11 @@ A collection of my custom-designed Roblox shirts and hoodies, available on the R
 **Hoodie:** Infernal + EVO Tesla  
 **Price:** 10 Robux  
 [View on Roblox](https://www.roblox.com/catalog/72240697910466/Infernal-EVO-Tesla-Shirt)  
+
+---
+
+### **Release 4** — *13/08/2025*  
+**Shirt:** Berserk Shirt  
+**Price:** 5 Robux  
+[View on Roblox](https://www.roblox.com/catalog/81331489279290/Berserk-Shirt)  
+
